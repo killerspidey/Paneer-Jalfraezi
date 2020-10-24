@@ -1,0 +1,5 @@
+Cut paneer into 2 inch long peices. Peel, wash and cut onions into thick slices, separate the different layers of onion. Peel, wash and cut ginger into julienne. Remove stems,wash and chop green chillies.
+Wash and cut tomatoes and capsicums into half, remove the seeds and cut them into 2 long inch slices with one-fourth inch width. Clean, wash and finely chop coriander leaves. Remove stems and break red chillies into 2 pieces.
+Heat oil in a kadai. Add cumin seeds. When they change colour add the halved red chillies. Add ginger julienne and sliced onions. Sauté for half a minute.
+Add red chilli powder and turmeric powder. Stir well and then mix capsicum pieces and cook for 2-3 minutes. Add paneer fingers and toss. Add salt and vinegar and cook for 2-3 minutes. Stir in tomato pieces and garam masala powder.
+Serve hot garnished with chopped coriander leaves.
